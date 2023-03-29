@@ -1,1 +1,1 @@
-# hyebinpark.github.io
+# hyebni.github.io/hyebinpark/
